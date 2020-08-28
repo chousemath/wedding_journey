@@ -17,3 +17,7 @@
 # What I believe the responsibilities of marriage entail
 
 * The relationship of husband and wife, however, is more than simply being a team with a common goal.
+
+# What I vow to do and why
+
+* In progress
