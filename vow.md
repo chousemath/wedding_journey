@@ -20,4 +20,4 @@
 
 # What I vow to do and why
 
-* In progress
+* In progress...
