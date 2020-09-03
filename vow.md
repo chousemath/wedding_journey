@@ -29,7 +29,10 @@
 
 # Rough draft 2
 
-* Su, as we've gotten to know each other, I've had the opportunity to reflect continuously on what love means to me. For me, love is showing each other our oddities and feeling our bond grow stronger as a result, like how you forget to bring your phone and your ID card, and my ability to make cheese disappear. Love is looking back thankfully at each disagreement as a moment of learning about each other, like when we clashed on what a date actually is. Love is the knowledge that no matter how hard the day has been, the end of the day together will be exactly what's needed to recharge for the next, as all our strange conversations between midnight and 2am always are. Su...
+* Su, as we've gotten to know each other, I've had the opportunity to reflect continuously on what love means to me. 
+* For me, love is showing each other our oddities and feeling our bond grow stronger as a result, like how you forget to bring your phone and your ID card, and my ability to make cheese disappear. 
+* Love is looking back thankfully at each disagreement as a moment of learning about each other, like when we clashed on what a date actually is. 
+* Love is the knowledge that no matter how hard the day has been, the end of the day together will be exactly what's needed to recharge for the next, as all our strange conversations between midnight and 2am always are. Su...
 * I vow to work hard for us to see as much of the world as we can stand or until we can't stand, whichever comes first, because at the top of the Koko Crater Trail in Hawaii I saw in your eyes the endless desire for exploration I’ve always had.
 * I vow to never give up on your dreams and work hard so that you don’t give up on them either, because it took courage to quit a job you've worked in for 7 years and start again from scratch, and I want you to always feel that the life you want is always within reach when we work together.
 * I vow that in a zombie apocalypse I will either die protecting you, or keep you as my zombie wife as long as you are willing to keep me as your zombie husband, then we could have another, less complicated wedding ceremony
