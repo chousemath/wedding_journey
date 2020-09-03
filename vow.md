@@ -20,4 +20,19 @@
 
 # What I vow to do and why
 
-* In progress...
+* I vow always to push you a little farther, because I know how much you want to see the world, and I will continue to work on that at your pace
+* I vow to put us above all else, because if we can’t trust each other to do that, what is the point
+* I vow to never give up on your dreams and work hard so that you don’t give up on them either, because life is hard enough already without a light at the end of the tunnel
+* I vow to always try to surprise you in good ways, because we married each other as much for who we are as who we could become
+* I vow to never shut you out when I go to dark places, because I know however much the darkness creeps in, you’ll be there to hold a candle to guide my way back
+* I vow that in a zombie apocalypse I will either die protecting you, or keep you as my zombie wife as long as you are willing to keep me as your zombie husband, then we could have another, less complicated wedding ceremony
+
+
+# Rough draft 1
+
+* Su, as we've got to know each other, I've had the opportunity to reflect several times over on what love and the act of loving one another means to me. For me, love is showing each other our imperfections and feeling our bond grow stronger as a result. Love is looking back thankfully at each argument and disagreement as a moment of learning about each other. Love is trusting each other to do a good job, yet hovering by with a helping hand. Love is the knowledge that no matter how hard the day as been, the end of the day together will be the sweet respite needed to recharge for the next.
+* I vow to work hard for us to see as much of the world as we can stand or until we can't stand, whichever comes first.
+* I vow to never give up on your dreams and work hard so that you don’t give up on them either.
+* I vow to always try to surprise you in good ways.
+* I vow that in a zombie apocalypse I will either die protecting you, or keep you as my zombie wife as long as you are willing to keep me as your zombie husband, then we could have another, less complicated wedding ceremony
+* Above all else, I vow to put us above all else, because I trust that you will do the same. Love you forever SuSu.
